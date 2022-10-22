@@ -1,3 +1,1 @@
-TAKING GOOD TRAINING I
-AM
-NEW FETURE CHNAGES
+goint to take class M
